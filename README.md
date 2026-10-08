@@ -1,1 +1,1 @@
-# awaimy.github.io
+# awaimy
