@@ -1,1 +1,1 @@
-# awaimy
+# awaismy
